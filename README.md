@@ -1,5 +1,5 @@
 # 💫 About Me:
-passionate about problem-solving.<br> Aspiring to collaborate with innovative tech startups, <br>creating captivating user experiences and leaving a mark in the ever-evolving world of technology."<br>Ask @himanshu
+passionate about problem-solving.<br> Aspiring to collaborate with innovative tech startups, <br>creating captivating user experiences and leaving a mark in the ever-evolving world of technology."<br>Ask @himanshu ↓↓
 
 
 ## 🌐 Socials:
